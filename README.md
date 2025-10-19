@@ -1,6 +1,8 @@
 # Hi there, I'm Md. Jashim Uddin! 👋
 
-Welcome to my GitHub profile! I'm a passionate **Public Relations Executive** with a background in **Mass Communication & Journalism**. My journey has been shaped by a love for storytelling, connecting with audiences, and fostering strong relationships.
+I am a **Strategic Public Relations professional** with over two years of experience leading communication campaigns, academic collaborations, and brand-driven initiatives. I specialize in **media relations, content creation, and project management**, leveraging a proven ability to enhance organizational success and visibility.
+
+My expertise includes developing and executing high-impact campaigns that reached over **10,000+ students** nationwide, generating **5,000+ qualified leads**, and building essential partnerships with **100+ academic institutions**. My creative foundation in Mass Communication and award-winning photography provides a unique edge in compelling visual storytelling.
 
 ### 💼 Professional Experience
 - **bdCalling IT Ltd** 
